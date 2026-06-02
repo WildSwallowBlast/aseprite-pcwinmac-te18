@@ -1,4 +1,4 @@
-# 
+# Personnalisé Aseprite modèles pour Mac OS | Turbo Aseprite modèles pour PC Windows. Avec design adaptatif et table des matières — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
